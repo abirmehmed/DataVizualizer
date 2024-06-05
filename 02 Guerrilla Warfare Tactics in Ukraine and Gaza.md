@@ -1,10 +1,3 @@
-# Researching
-Searching for **Guerrilla warfare tactics used in Ukraine conflict**
-
-Searching for **Comparison of guerrilla tactics in Ukraine and Gaza**
-
-Searching for **Impact of guerrilla warfare on civilian populations in Ukraine and Gaza**
-
 
 # Guerrilla Warfare Tactics in Ukraine and Gaza
 
